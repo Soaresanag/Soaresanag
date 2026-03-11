@@ -13,6 +13,6 @@ Olá, eu sou a Ana Luiza Soares Gonçalves!
 
  Onde me encontrar:
  
-💼 linkedin.com/in/ana-luiza-soares-gonçalves/
+💼 linkedin.com/in/ana-luiza-soares-goncalves/
 
 📧 analuizasgoncalves11@gmail.com
